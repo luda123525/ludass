@@ -1,37 +1,21 @@
-Nancy and Paul Pelosi are trading large — with a wealth of hypocrisy
-Democrats have carved out quite a niche for themselves as the party of the have-nots, even if it’s mostly a hypocritical marketing ploy. Bernie Sanders, the socialist, lives a pretty non-socialist life with a town house, a vacation home and all the comforts of the bourgeoisie while he claims to champion the proletariat.
+https://www.foxnews.com/politics/paul-pelosi-allegedly-slurred-speech-drug-system-handed-police-privilege-card-dui-bust
 
-There’s no shortage of similar examples. Recall the late Massachusetts senator and liberal icon Teddy Kennedy’s support of forced busing while sending his kids to private school back in the 1970s. The latest of these “freedom for me but not for thee” ­hypocrisies involves the matter of Paul Pelosi, the octogenarian hubby of Nancy Pelosi, the octogenarian lefty speaker of the House of Representatives.
 
-Paul Pelosi has been killing it in the stock market in recent years, according to disclosure forms, for reasons that could well go beyond some innate ability to sense swings in the markets. His latest home run: Snapping up between $1 million and $5 million in shares of computer chip darling Nvidia (via exercising call options) on June 17, according to disclosure documents.
+Paul Pelosi allegedly slurred speech, had drug in system and handed over police privilege card during DUI bust
+Paul Pelosi, the multimillionaire husband of House Speaker Nancy Pelosi, allegedly had a drug in his system, addressed officers with slurred speech, and tried to hand them a police courtesy card during his May arrest on DUI charges, according to court documents.
 
-His timing, once again, was impeccable: He executed the trades as Congress moves closer to passing tens of billions of dollars in corporate-welfare subsidies for US semiconductor production. That’s good news for Nvidia and shareholders like Paul Pelosi. Since his bet, shares have risen nearly 10%. By my math, he could have pocketed a quick $500,000.Maybe Paul Pelosi knows a thing or two about stock trading. Or maybe he’s just a savant, like Hillary Clinton, who years ago credited her reading of The Wall Street Journal with being able to make big bucks trading esoteric cattle futures.
+Pelosi's 2021 Porsche and the other driver's 2014 Jeep sustained "major collision damage" in a crash around 10:17 p.m. on May 28, and responding officers found Pelosi in his driver’s seat in his damaged car near the intersection of California Route 29 and Oakville Cross Road.
 
-One problem with giving Paul Pelosi the benefit of the doubt is that enough of his winners involve companies that appear to have been benefiting from legislation that his wife, as the powerful lefty house speaker, has a hand in.
+Pelosi allegedly handed officers his driver’s license and an "11-99 Foundation" card when they asked for his ID, according to the documents. The 11-99 Foundation is a California Highway Patrol charity that supports officers and provides scholarships for their children.Pelosi allegedly exhibited "signs of impairment" during field sobriety tests and officers "observed objective signs and symptoms of alcohol intoxication," according to the documents.Those allegedly included "red/watery" eyes.
 
-Ummm . . .
+"He was unsteady on his feet, his speech was slurred, and he had a strong odor of an alcohol beverage emanating from his breath," the complaint alleges.
 
-Paul and Nancy have been married for going on 59 years. He’s been at Nancy’s side during her rise to the pinnacle of Democratic Party leadership. She has certainly benefited from his career as a successful Silicon Valley investor.His trades are her trades
-The reason we know about Paul Pelosi’s market prowess is because members of Congress are required to disclose such investments, and since he’s married to Nancy, his trades, under the disclosure rules, are her trades.
+The other driver, identified only as John Doe, was standing outside an SUV, according to the documents.Both of them declined medical treatment at the scene, but Doe on June 2 told Napa County prosecutors that he had begun suffering pain in his upper right arm, right shoulder and neck the day after the crash. He also complained of headaches and said it was difficult to lift things with his right arm, according to the documents.Pelosi allegedly injured the other driver "while under the influence of an alcoholic beverage and a drug and under their combined influence," the first count in the two-charge complaint reads.
 
-And it explains why Nancy ­Pelosi is one of the richest members of Congress — with an estimated net worth of more than $100 million on an annual salary of about $200,000.
+HOUSE SPEAKER NANCY PELOSI'S HUSBAND, PAUL, ARRESTED IN CALIFORNIA, CHARGED WITH DUI
 
-The power couple have a vineyard in tony Napa Valley plus many of the perks of wealth and status. She represents the dysfunctional congressional district in and around San Francisco, which means she’s regularly attacking wealth creators while virtue signaling about the poor and downtrodden — who remain so ­under her watch.
+Investigators later determined he had a blood-alcohol content of .082%.
 
-It’s limousine liberalism on steroids. Happily for them, their allegiance to lefty politics somehow stops when it comes to businesses involving Paul.Paul is a longtime venture capitalist. Where’s Nancy on eliminating that controversial, anti-progressive venture-capitalist tax break known as the carried-interest deduction, which gives favorable tax treatment to him and other gazillionaires?
+Pelosi’s attorney, Amanda Bevins, told Fox News Digital, "I believe that the drug reference is part of the statutory boilerplate language in the complaint." Previously, descriptions of property damage and injuries stemming from the crash had been withheld. Records show Pelosi was bailed out the morning after the crash for a $5,000 sum.
 
-M.I.A.
-
-Where is she on making sure members of Congress or their spouses can’t benefit from an ­information edge — particularly on market-moving legislation?
-
-Here, Nancy is a born-again capitalist. She and her hubby “should be able to participate in that,” she said last year when asked about her hubby’s trading.
-
-Insider trading — or trading stocks on material, non-public information — is a crime, of course. Recent legislation puts people who use information they learned based on their position in Congress (or their spouse’s) in the same slimy bucket.
-
-But most lawmakers who have been investigated for allegedly ­using their position to trade almost always never face criminal charges. See the case of North Carolina Republican Sen. Richard Burr. Lawmakers get private briefings, as Burr did before selling stock just before the pandemic rocked the markets. They can and do point to the fact that the same information was swirling around on the Internet or business television.
-
-That’s why any case against Paul Pelosi would likely go nowhere. His timing on Nvidia may have been fishy, but he could just as easily point to countless news reports about the legislation going back at least six months, long ­before his trades were made.
-
-So it may not be illegal — but it sure does look scummy. The Pelosis are in positions of influence with access to information not available to most Americans. And they have no shame taking millions while Nancy Pelosi leads a party that is dedicated to virtue signaling about the sins of capitalism.
-
-There should be a law against that.
+Speaker Pelosi's office has previously said it would not comment on the incident, which a spokesperson said happened while she was on the opposite side of the country.
